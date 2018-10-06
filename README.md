@@ -35,3 +35,5 @@ To contact me on topics related to products, privacy policy or in another case, 
 jennifer.zoe123@gmail.com
 
 Best regards!
+
+Last Update: Oct 6, 2018
